@@ -1,1 +1,0 @@
-# partnership-dealer-mobile
